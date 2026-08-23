@@ -1,4 +1,7 @@
-## Hi there 👋
+Wip ig
+
+![1000035783](https://github.com/user-attachments/assets/ff7599c7-1520-440d-a6cd-abcbdc5450bb)
+
 
 <!--
 **Silvyrrr/Silvyrrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
