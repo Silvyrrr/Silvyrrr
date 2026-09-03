@@ -3,7 +3,8 @@
 
 ゛ι αʅʂσ ɗσ ყυɱҽʂɦιρʂ ..! ƈυɾɾҽɳƚʅყ ɦαʋιɳɠ αɳ σɓʂҽʂʂισɳ σʋҽɾ ϝʅιɳʂ , ɗσƚƚσɾҽ αɳɗ ραɳƚαʅσɳҽ xɓɓɓ 
 
-![1000039660](https://github.com/user-attachments/assets/bb26de15-c378-49cb-aa5e-7b8dfcdc956d)
+![1000039663](https://github.com/user-attachments/assets/9ed69370-a877-4671-80ed-40e85a9d1e2d)
+
 
 <!--
 **Silvyrrr/Silvyrrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
